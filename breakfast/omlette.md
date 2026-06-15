@@ -1,0 +1,9 @@
+## Omlette
+## Ingredients
+- 2 large eggs
+- Pinch salt
+- 1 tablespoon unsalted butter
+- 2 tablespoons grated cheese, any kind
+- 3 to 4 cherry tomatoes, cut in half and sprinkled lightly with salt
+- 2 tablespoons chopped basil, parsley, or herb of your choice
+## Instructions
